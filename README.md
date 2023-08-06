@@ -1,4 +1,4 @@
-## Hi!,I'm Yasin
+## Hi!,I'm Yasin👋🏽
 
 ### Connect with me:
 [<img align="left" alt="yasin | LinkedIn" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/linkedin.svg" />](https://www.linkedin.com/in/yasin-jafari-3ab76a22b/)
